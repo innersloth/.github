@@ -1,1 +1,1 @@
-### I am not affiliated with, authorized, maintained, nor sponsored by InnerSloth or any of its affiliates or subsidiaries. This is an unofficial account made to prevent impersonators claiming to be InnerSloth and spreading malwares.
+### I am not affiliated with, authorized, maintained, nor sponsored by InnerSloth or any of its affiliates or subsidiaries. This is an unofficial account made to prevent impersonators claiming to be InnerSloth and spreading malwares or any other malicious files.
